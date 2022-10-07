@@ -1,4 +1,4 @@
-### Hi 👋, I'm Kerby
+### Hi 👋, I'm Kerby LOVINCE a Computer Science Student
 
 
  <div align="center">
